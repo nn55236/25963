@@ -19,4 +19,4 @@
 立即收藏本网站，尽享真正的日本AV高清免费资源。简单、纯粹、快速、安全——为您提供一个真正舒适的观影环境，是我们一直坚持的初衷。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/nn55236/25963 ）</span>
